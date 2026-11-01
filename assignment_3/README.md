@@ -1,0 +1,1 @@
+at first ı really cant recognize something but when ı coninue to do ıt looks easier also my node version is old or something thats why at first ı cant run my terminal then ı fixed it thats all ıt was hard for now (thıs assıgnment)but ı hope thats getting eaiser
